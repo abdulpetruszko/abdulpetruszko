@@ -1,0 +1,5 @@
+- 👋 No elo elo
+- 👀 C#, Java, JavaScript, Skript, Lua
+- 🌱 Zagrozenie z matmy LIKE
+- 💞️ Bardzo zakochany<33
+- 📫 Skidzior mordzia
